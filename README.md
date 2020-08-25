@@ -4,7 +4,7 @@ you can get free cc information from hear
 ## do not try carding
 
 ### iam not ensuring the CC are alive or have balance(maybe its dumbp)...if your lucky you will get your benefit
-![cb]()
+![cb](https://cdn.discordapp.com/attachments/747488181523316862/747858714886799440/Screenshot_20200825-221307_Termux.jpg)
 
 # installation
 
